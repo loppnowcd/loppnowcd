@@ -4,7 +4,7 @@
 - 👀 I’m interested in nature, animals, cooking and gaming.
 - 💞️ I’m looking to collaborate on social projects where I can contribute a bit with community, and I'd also like to collaborate on tech projects where I can learn, grow and contribute with good quality deliveries.
 - 📫 How to reach me: +5547999273563 and loppnow.cd@gmail.com.
--  ![image](https://github.com/user-attachments/assets/f0f45459-d6e0-4847-9893-c809b406af1b) Text
+-   Text
 
 
 <!---
