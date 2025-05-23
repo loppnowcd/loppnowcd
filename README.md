@@ -42,7 +42,7 @@ Meus objetivos neste momento são:
 Além de tecnologia, também sou apaixonado por:
 
 - Natureza e animais
-- ozinhar
+- Cozinhar
 - Games (especialmente RPGs, Necromancer neles!)
 
 ---
