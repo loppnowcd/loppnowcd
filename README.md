@@ -53,9 +53,8 @@ Se quiser trocar ideia, colaborar ou só bater um papo sobre tech, me chama:
 
 - Email: loppnow.cd@gmail.com  
 - WhatsApp: +55 47 99927-3563  
-- <a href="https://www.linkedin.com/in/christian-loppnow-%F0%9F%8F%B3%EF%B8%8F%E2%80%8D%F0%9F%8C%88-869467110/" target="_blank">
+- [LinkedIn - Christian Loppnow 🏳️‍🌈](https://www.linkedin.com/in/christian-loppnow-%F0%9F%8F%B3%EF%B8%8F%E2%80%8D%F0%9F%8C%88-869467110/)
 
----
 
 ### Curiosidades
 
