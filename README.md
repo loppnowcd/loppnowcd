@@ -16,7 +16,7 @@ Depois de 18 anos atuando em outra área, onde desenvolvi habilidades sólidas d
 Atualmente, estou me dedicando a estudar e desenvolver projetos com:
 
 - **HTML, CSS, JavaScript** – para criação de interfaces web.
-- **PSQL** – para lógica, automações e manipulação de dados.
+- **SQL** – para lógica, automações e manipulação de dados.
 - **C# e .NET** – como parte do programa Entra21 de formação profissional.
 
 ---
